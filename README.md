@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sahraanuur.
 - 👀 I’m interested in data and ux/ui design.
-- 🌱 I’m currently learning data tech skills.
+- 🌱 I’m currently building data tech skills.
 - 💞️ I’m open to work. 
 - 📫 You can reach me through Linkedin- attached to my profile.
 - 😄 Pronouns: She/her.
