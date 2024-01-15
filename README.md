@@ -2,7 +2,7 @@
 - 👀 I’m interested in data and ux/ui design.
 - 🌱 I’m currently learning data tech skills.
 - 💞️ I’m looking to collaborate on projects related to my interests.
-- 📫 You can reach me through Linkedin- attachec to my profile.
+- 📫 You can reach me through Linkedin- attached to my profile.
 - 😄 Pronouns: She/her.
 
 
