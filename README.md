@@ -1,7 +1,10 @@
 - 👋 Hi, I’m @sahraanuur.
-- 👀 I’m interested in data and ux/ui design.
-- 🌱 I’m currently building data tech skills.
-- 💞️ I’m open to work. 
+- 😄 Bsc Marketing and Advertising with business experience.
+- 🌱  Graduated in Data Technician Skills, a 12- week Bootcamp by JustIT.
+- 💞️ Completed a Web Development Course by Code First Girls.
+- 👀 I’m interested in Data!
+- 🌱 Always working on projects to build my portfolio.
+- 💞️ I’m open to work in entry level and junior level jobs!
 - 📫 You can reach me through Linkedin- attached to my profile.
 - 😄 Pronouns: She/her.
 
