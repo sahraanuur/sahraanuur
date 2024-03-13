@@ -1,4 +1,4 @@
-<h3 align="center">👋 Hi, I’m Sahra.<br>- 😄 Bsc Marketing and Advertising with business experience.<br>- 🌱  Graduated in Data Technician Skills, a 12- week Bootcamp by JustIT.<br>- 💞️ Completed a Web Development Course by Code First Girls.<br>- 👀 Aspiring to work in the Marketing and Data industry.<br>- 🌱 Always working on projects to build my portfolio.<br>- 💞️ I’m open to work in entry level and junior level jobs!<br>- 📫 You can reach me through Linkedin- attached to my profile.<br>- 😄 Pronouns: She/her.</h3>
+<h3 align="center">👋 Hi, I’m Sahra.<br>- 😄 Bsc Marketing and Advertising with business experience.<br>- 🌱  Graduated in Data Technician Skills, a 12- week Bootcamp by JustIT.<br>- 💞️ Completed a Web Development Course by Code First Girls.<br>- 👀 Aspiring to work in the Marketing and Tech industry.<br>- 🌱 Always working on projects to build my portfolio.<br>- 💞️ I’m open to work in entry level and junior level jobs!<br>- 📫 You can reach me through Linkedin- attached to my profile.<br>- 😄 Pronouns: She/her.</h3>
 
 ###
 
